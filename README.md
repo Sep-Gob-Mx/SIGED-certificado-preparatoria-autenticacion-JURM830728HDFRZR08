@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-JURM830728HDFRZR08
+JURM830728HDFRZR08
